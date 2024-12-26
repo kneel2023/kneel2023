@@ -1,4 +1,4 @@
-# Hi there, I'm kneel2023 👋
+# Hi there, I'm Neel 👋
 
 Welcome to my GitHub profile!
 
